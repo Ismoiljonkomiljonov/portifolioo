@@ -1,0 +1,2 @@
+# portifolioo
+Mening ishlarim
